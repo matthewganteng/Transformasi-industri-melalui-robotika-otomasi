@@ -1,6 +1,6 @@
 Anggota kelompok :
 1. Imam ahmad fauzi
-2. Matthew fajar sitoris
+2. Matthew fajar sitorus
 3. Mahdiya Huda
 4. Dhika Hadi Mulyana
 
